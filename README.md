@@ -73,8 +73,8 @@ As a lifelong learner, I'm constantly exploring new tech — currently diving de
 
 ## 📫 Let's Connect
 
-- [LinkedIn](https://www.linkedin.com/in/your-link-here)
-- 💌 Reach me at: `youremail@example.com`
+- [LinkedIn](https://www.linkedin.com/in/karthick-r-188533205?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 💌 Reach me at: `karthick.developer@gmail.com`
 
 > "Strive for progress, not perfection." 💪
 
